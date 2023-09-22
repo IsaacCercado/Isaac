@@ -1,2 +1,0 @@
-# Isaac
-Mirelo con atención
